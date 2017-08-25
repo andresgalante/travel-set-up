@@ -20,7 +20,7 @@ Things to do in preparation for a business trip:
 
 
 - Credit cards
-  - Call corp credit card 4379 3330
+  - Call corp credit card 4379 3330 (denuncias 4379-3333)
   - Let Santader know of the trip online
 
 - Sleeping pills
