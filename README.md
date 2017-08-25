@@ -12,3 +12,4 @@ Things to do in preparation for a business trip:
 - Iphone cables
 - Mini usb cable
 - adaptor
+- business cards
