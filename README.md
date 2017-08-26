@@ -5,9 +5,10 @@ Things to do in preparation for a business trip:
 - Passport is up to date
 - business cards
 - Add credit to SIM card
+- Checkin
 - write down the hotel address
 - Croporate card
-- Amex
+- Amex Platinum
 - Sun glasses
 - cash Money
 - notepad and pen
