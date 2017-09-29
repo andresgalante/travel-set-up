@@ -21,7 +21,7 @@ Things to do in preparation for a business trip:
 
 
 - Credit cards
-  - Call corp credit card 4379 3330 (denuncias 4379-3333)
+  - Call corp credit card 4379 3330 opcion 5, 1, 2 (denuncias 4379-3333)
   - master card 43487000
   - Let Santader know of the trip online
 
