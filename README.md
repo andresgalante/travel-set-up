@@ -10,7 +10,7 @@ Things to do in preparation for a business trip:
 - Croporate card
 - Amex Platinum
 - Sun glasses
-- cash Money
+- cash
 - notepad and pen
 - Computer is fully charged
 - Phone is fully charged
